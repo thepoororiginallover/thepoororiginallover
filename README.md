@@ -33,8 +33,8 @@ $$\color{#6F4783}{𐂯}$$   ⸝⸝
 ಇ. ㅤ 
 
 
-<img src="https://64.media.tumblr.com/60d26e1cd9c9f898afb86ab23c1f1537/69dcda1eed0fee42-8f/s250x400/246b480e4774af20fe9bffaa4ce92018c12fac57.gifv" width="100">
+<img src="https://64.media.tumblr.com/159b7ae922b8f6ff7da7e6a97c67ef1d/82f062ad64b65975-dc/s100x200/5c2ac239a637a2654ebf178b24cade29afd4f835.pnj" width="100">
 
-<img src="https://64.media.tumblr.com/5369c00ab13d8066618e82ff020e4e31/772a6c5f5f7c3182-dd/s100x200/5433096132901e9091d9966e0e4c474a2807ab86.jpg" width="100">
+<img src="https://64.media.tumblr.com/80ebe3355d90fb5050de7a50705b8a55/010e11ea771c15ef-7d/s100x200/259eb45c3f0324a72db961f56561474d729f3d2f.jpg" width="100">
 
 </div></sub>
