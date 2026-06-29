@@ -21,7 +21,7 @@ $$\color{#A187B7}{৻ꪆ}$$
 <div align="center"><sup>
 
 $$\color{#6F4783}{𐂯}$$   ⸝⸝ 
-[𝗌𝗍𝗋αωρα𝗀𝖾](https://omegamale.straw.page)
+[rentry](https://rentry.co/desolatednightshades)
  ㅤ ◞ ˳ ㅤ 
 [新ᑲⱺⱺ𝗄](https://queerslop.atabook.org/)
  ㅤ  𓏽⑅ ㅤ
